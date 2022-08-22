@@ -1,5 +1,5 @@
 # about
-Wominjeka** to Doggo Training & Testing Pty Ltd. Our services are dedicated to bringing together people with Perceptual and Cognitive Disabilities (PCDs) together with tested assistance doggos!
+Wominjeka** to Doggo Training & Testing Pty Ltd. Our services are dedicated to bringing people with Perceptual and Cognitive Disabilities (PCDs) together with tested assistance doggos!
 Address: Cornhill Road, Mt Buller, Victoria, 3723, Australia
 Phone: 04 0128 3375
 
